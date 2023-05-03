@@ -1,2 +1,2 @@
 Hi
-Are you fine?
+Are you good?
